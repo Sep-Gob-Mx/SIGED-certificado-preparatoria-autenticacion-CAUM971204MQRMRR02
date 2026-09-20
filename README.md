@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CAUM971204MQRMRR02
+CAUM971204MQRMRR02
